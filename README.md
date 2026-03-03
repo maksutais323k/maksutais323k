@@ -20,6 +20,6 @@
 
 ## 📫 Контакты
 
-- **Telegram:** [@cringeplayer](https://t.me/darkwebthreads)
+- **Telegram:** [@mrrossmith](https://t.me/mrrossmith)
 
 ---
